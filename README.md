@@ -1,5 +1,6 @@
 # smartility2018
 ## in Leipzig
+### vom 23. Januar bis 24. Januar 2018
 
 **Plan der Veranstaltungsorte und Unterkunftsmöglichkeiten**
 
